@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm Greta, a student interested in business, entrepreneurship, and art.
+I'm Emilia, a student interested in business, entrepreneurship, and art.
 
 ## About me
 - I love building projects
